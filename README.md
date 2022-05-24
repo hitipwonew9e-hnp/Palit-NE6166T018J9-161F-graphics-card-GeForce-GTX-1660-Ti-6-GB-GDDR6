@@ -1,0 +1,1 @@
+# Palit-NE6166T018J9-161F-graphics-card-GeForce-GTX-1660-Ti-6-GB-GDDR6
